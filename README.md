@@ -1,4 +1,4 @@
 # Larissa Minarini
-### Terra do BiXcoito
+### Terra do Biscoito
 [Twitter](http://twitter.com/_minarini) | [LinkedIn](https://www.linkedin.com/in/larissaminarini)
 
